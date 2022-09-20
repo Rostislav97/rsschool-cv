@@ -15,5 +15,11 @@ I am sociable, I know how to work in a team. I am constantly learning something 
 
 * Languages: Russian (native) Belarusian (basic), English (A2)
 
+* Contacts:
+    * Location: Brest, Belarus
+    * Email: rostislavzoryn97@gmail.com
+    * Discord: Ростислав#8443
+
+
 
 
