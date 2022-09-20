@@ -1,1 +1,1 @@
-# This is my first project
+https://github.com/Rostislav97/rsschool-cv/blob/gh-pages/CV.md
